@@ -11,3 +11,4 @@ assignees: ''
 <!-- Example: Membership Hack-->
 
 **Have you made sure this hack isn't available yet?* (Yes/No)**
+academy page hack plz im sure this isnt avalible yet👌👌😟
